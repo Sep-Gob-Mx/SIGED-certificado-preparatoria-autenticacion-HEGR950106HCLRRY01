@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-HEGR950106HCLRRY01
+HEGR950106HCLRRY01
